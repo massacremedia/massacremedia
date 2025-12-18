@@ -13,7 +13,7 @@ $${\color{#1E90FF}﹉Every \space pulse \space shapes \space thought,﹉﹉﹉}$
 $${\color{#FF2400}﹉Every \space whisper \space commands \space attention.﹉﹉﹉}$$
 $${\color{#1E90FF}﹉The \space masses \space follow, \space eyes \space fixed \space on \space the \space screen.﹉﹉﹉}$$
 ⚠️ 
-$${\color{#FF2400}︶︶DO \space NOT\space STEAL\space MY \space SKINS!︶︶}$$ 
+$${\color{#FF2400}︶︶DO \space NOT\space COPY\space MY \space SKINS!︶︶}$$ 
 
 ┏━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━ 
 
