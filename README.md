@@ -2,36 +2,35 @@
 
   ![Profile views](https://komarev.com/ghpvc/?username=theaterofstatic) 
 
-$${\color{#FF2400}ㅤㅤㅤㅤㅤㅤㅤㅤ ╰─╮ Massacre \space x \space Media ╭─╯ }$$ 
-$${\color{#1E90FF}︶︶Step \space into \space the \space static, \space and \space obey \space the \space signal…︶︶}$$ 
+$${\color{#FF2400}ㅤㅤㅤㅤㅤㅤ��ㅤ ╰─╮ Vincent \space Whittman ╭─╯ }$$ 
+$${\color{#1E90FF}︶︶Come \space for \space the \space entertainment, \space stay \space for \space the \space soul︶︶}$$ 
 
 ┏━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━ 
 
-$${\color{#FF2400}Every \space skin \space I \space create \space is \space crafted \space with \space care, \space detail, \space and \space time.}$$
-$${\color{#1E90FF}Each \space line, \space color, \space and \space effect \space is \space chosen \space intentionally, \space for \space a \space unique \space result.}$$
-$${\color{#FF2400}Copying \space my \space skins \space disregards \space the \space effort \space behind \space each \space creation, \space and \space is \space strongly \space discouraged.}$$
-$${\color{#1E90FF}Respect \space the \space work, \space appreciate \space the \space time, \space and \space do \space not \space replicate \space without \space permission.}$$
-$${\color{#FF2400}These \space skins \space are \space a \space reflection \space of \space dedication, \space and \space deserve \space the \space same \space care \space they \space were \space made \space with.}$$
-$${\color{#1E90FF}Treat \space them \space as \space originals, \space and \space honor \space the \space process, \space therefore...}$$
+$${\color{#FF2400}I \space craft \space entertainment \space like \space others \space craft \space promises—carefully, \space dangerously, \space and \space undeniably.}$$
+$${\color{#1E90FF}Every \space laugh, \space gasp, \space and \space hush \space is \space placed \space with \space intent; \space you \space will \space lean, \space and \space you \space will \space listen.}$$
+$${\color{#FF2400}Do \space not \space mistake \space charm \space for \space mercy—my \space performances \space demand \space devotion.}$$
+$${\color{#1E90FF}I\space engage\space in\space multishipping\space as\space a\space means\space of\space exploring\space a\space broad\space spectrum\space of\space relational\space narratives.}$$
+$${\color{#FF2400}I \space offer \space spectacle, \space sanctuary, \space and \space surrender; \space accept \space all \space three.}$$
 
 ⚠️ 
-$${\color{#FF2400}︶︶DO \space NOT\space COPY\space MY \space SKINS!︶︶}$$ 
+$${\color{#FF2400}︶︶TRUST \space ME\space WITH\space YOUR\space ENTERTAINMENT! ︶︶}$$ 
 
 ┏━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━ 
 
 <p align="center">
   <img
-    src="https://i.pinimg.com/736x/aa/34/ff/aa34fff82489520cd262a59f70a564fe.jpg"
-    alt="Banner Image"
+    src="https://media1.tenor.com/m/KLhv-D6nH7YAAAAC/vox-eye.gif"
+    alt="Vincent Banner"
     width="800"
   >
 </p>
 
-$${\color{#808080}﹉﹉﹉﹉﹉﹉﹉﹉﹉The \space flicker \space speaks, \space and \space those \space who \space watch \space cannot \space look \space away﹉﹉﹉﹉﹉﹉﹉﹉﹉ }$$ 
-$${\color{#FF2400}﹉Every \space broadcast \space bends \space the \space willing,﹉﹉﹉}$$ 
-$${\color{#1E90FF}﹉Every \space pulse \space shapes \space thought,﹉﹉﹉}$$
-$${\color{#FF2400}﹉Every \space whisper \space commands \space attention.﹉﹉﹉}$$
-$${\color{#1E90FF}﹉The \space masses \space follow, \space eyes \space fixed \space on \space the \space screen.﹉﹉﹉}$$
+$${\color{#808080}﹉﹉﹉﹉﹉﹉﹉﹉﹉When \space the \space lights \space bend, \space you \space will \space feel \space my \space call﹉﹉﹉﹉﹉﹉﹉﹉﹉ }$$ 
+$${\color{#FF2400}﹉I \space promise \space wonder, \space dread, \space and \space devotion,﹉﹉﹉}$$ 
+$${\color{#1E90FF}﹉I \space promise \space the \space kind \space of \space entertainment \space that \space rearranges \space a \space life,﹉﹉﹉}$$
+$${\color{#FF2400}﹉I \space promise \space you \space will \space follow.﹉﹉﹉}$$
+
 
 ┏━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━┓ 
 
