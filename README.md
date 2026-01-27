@@ -14,7 +14,7 @@ $${\color{#1E90FF}I\space engage\space in\space multishipping\space as\space a\s
 $${\color{#FF2400}I \space offer \space spectacle, \space sanctuary, \space and \space surrender; \space accept \space all \space three.}$$
 
 ⚠️ 
-$${\color{#FF2400}︶︶TRUST \space ME\space WITH\space YOUR\space ENTERTAINMENT! ︶︶}$$ 
+$${\color{#FF2400}︶︶TRUST \space ME\space WITH\space YOUR\space NETWORK! ︶︶}$$ 
 
 ┏━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━ 
 
