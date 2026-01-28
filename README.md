@@ -26,7 +26,7 @@ $${\color{#FF2400}︶︶TRUST \space ME\space WITH\space YOUR\space NETWORK! ︶
   >
 </p>
 
-$${\color{#808080}﹉﹉﹉﹉﹉﹉﹉﹉﹉When \space the \space lights \space bend, \space you \space will \space feel \space my \space call﹉﹉﹉﹉﹉﹉﹉﹉﹉ }$$ 
+$${\color{#808080}﹉﹉﹉﹉﹉﹉﹉﹉﹉When \space the \space lights \space bend, \space you \space will \space feel \space my \space presence﹉﹉﹉﹉﹉﹉﹉﹉﹉ }$$ 
 $${\color{#FF2400}﹉I \space promise \space wonder, \space dread, \space and \space devotion,﹉﹉﹉}$$ 
 $${\color{#1E90FF}﹉I \space promise \space the \space kind \space of \space entertainment \space that \space rearranges \space a \space life,﹉﹉﹉}$$
 $${\color{#FF2400}﹉I \space promise \space you \space will \space follow.﹉﹉﹉}$$
