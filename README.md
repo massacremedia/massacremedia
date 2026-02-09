@@ -3,20 +3,21 @@
   ![Profile views](https://komarev.com/ghpvc/?username=theaterofstatic) 
 
 $${\color{#FF2400}ㅤㅤㅤㅤㅤㅤ��ㅤ ╰─╮ Vincent \space Whittman ╭─╯ }$$ 
-$${\color{#1E90FF}︶︶Come \space for \space the \space entertainment, \space stay \space for \space the \space soul︶︶}$$ 
-
-┏━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━ 
-
-$${\color{#FF2400}I \space craft \space entertainment \space like \space others \space craft \space promises—carefully, \space dangerously, \space and \space undeniably.}$$
-$${\color{#1E90FF}Every \space laugh, \space gasp, \space and \space hush \space is \space placed \space with \space intent; \space you \space will \space lean, \space and \space you \space will \space listen.}$$
-$${\color{#FF2400}Do \space not \space mistake \space charm \space for \space mercy—my \space performances \space demand \space devotion.}$$
-$${\color{#1E90FF}I\space engage\space in\space multishipping\space as\space a\space means\space of\space exploring\space a\space broad\space spectrum\space of\space relational\space narratives.}$$
-$${\color{#FF2400}I \space offer \space spectacle, \space sanctuary, \space and \space surrender; \space accept \space all \space three.}$$
+$${\color{#1E90FF}︶︶Welcome \space to \space My \space Github!︶︶}$$ 
 
 ⚠️ 
-$${\color{#FF2400}︶︶TRUST \space ME\space WITH\space YOUR\space NETWORK! ︶︶}$$ 
+$${\color{#808080}﹉﹉﹉﹉﹉﹉﹉﹉﹉NO \space Copying \space or \space taking \space Inspo. ﹉﹉﹉﹉﹉﹉﹉﹉﹉ }$$ 
 
-┏━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━ 
+▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃
+
+$${\color{#00d4ff}
+The \space other \space studios \space wanna \space feed \space you \space the \space same \space old \space crap \space everyone's \space seen \space before. \space
+You \space want \space newer, \space you \space want \space bigger, \space you \space want \space brighter! \space
+I \space will \space be \space your \space voice, \space and \space we \space will \space redefine \space what \space it \space means \space to \space rule \space the \space airwaves. \space
+Trust \space me, \space and \space your \space future \space will \space be \space brighter! \space
+Now \space who's \space ready \space to \space be \space baptized \space into \space a \space new \space era \space of \space entertainment?!}$$
+
+┏━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━┓ 
 
 <p align="center">
   <img
@@ -26,12 +27,6 @@ $${\color{#FF2400}︶︶TRUST \space ME\space WITH\space YOUR\space NETWORK! ︶
   >
 </p>
 
-$${\color{#808080}﹉﹉﹉﹉﹉﹉﹉﹉﹉When \space the \space lights \space bend, \space you \space will \space feel \space my \space presence﹉﹉﹉﹉﹉﹉﹉﹉﹉ }$$ 
-$${\color{#FF2400}﹉I \space promise \space wonder, \space dread, \space and \space devotion,﹉﹉﹉}$$ 
-$${\color{#1E90FF}﹉I \space promise \space the \space kind \space of \space entertainment \space that \space rearranges \space a \space life,﹉﹉﹉}$$
-$${\color{#FF2400}﹉I \space promise \space you \space will \space follow.﹉﹉﹉}$$
-
-
 ┏━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━┓ 
 
 $${\color{#808080}﹉﹉﹉﹉﹉﹉﹉﹉﹉MDNI﹉﹉﹉﹉﹉﹉﹉﹉﹉ }$$ 
@@ -40,9 +35,12 @@ $${\color{#1E90FF}This \space corner \space of \space the \space internet \space
 $${\color{#FF2400}Step \space lightly, \space or \space turn \space away;}$$
 $${\color{#1E90FF}we \space tolerate \space no \space unwelcome \space eyes.}$$
 
-<p align="center"> 
-<a href="https://git.io/typing-svg"> 
-<img src="https://readme-typing-svg.herokuapp.com?font=Orbitron&weight=700&size=32&duration=3500&pause=800&color=FF2400&center=true&width=435&lines=Trust+the+Signal." /> 
-</a> 
-</p> 
+
+
+
+<p align="center">   
+<a href="https://git.io/typing-svg">   
+<img src="https://readme-typing-svg.herokuapp.com?font=Orbitron&weight=700&size=32&duration=5500&pause=800&color=00d4ff&center=true&width=1200&lines=TRUST+ME+WITH+YOUR+ENTERTAINMENT!" />   
+</a>   
+</p>   
 </div>
