@@ -29,14 +29,15 @@ Now \space who's \space ready \space to \space be \space baptized \space into \s
 
 ┏━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━┓ 
 
+⚠️ 
 $${\color{#808080}﹉﹉﹉﹉﹉﹉﹉﹉﹉MDNI﹉﹉﹉﹉﹉﹉﹉﹉﹉ }$$ 
+
 $${\color{#FF2400}Minors \space do \space not \space interact.}$$
 $${\color{#1E90FF}This \space corner \space of \space the \space internet \space deals \space in \space control, \space influence, \space and \space media \space horrors \space suitable \space only \space for \space adults.}$$
 $${\color{#FF2400}Step \space lightly, \space or \space turn \space away;}$$
 $${\color{#1E90FF}we \space tolerate \space no \space unwelcome \space eyes.}$$
 
-
-
+▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃
 
 <p align="center">   
 <a href="https://git.io/typing-svg">   
