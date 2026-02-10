@@ -2,8 +2,8 @@
 
   ![Profile views](https://komarev.com/ghpvc/?username=theaterofstatic) 
 
-$${\color{#FF2400}ㅤㅤㅤㅤㅤㅤ��ㅤ ╰─╮ Vincent \space Whittman ╭─╯ }$$ 
-$${\color{#1E90FF}︶︶Welcome \space to \space My \space Github!︶︶}$$ 
+$${\color{#FF2400}ㅤㅤㅤㅤㅤㅤ��ㅤ ╰─╮ Vin / Flo ╭─╯ }$$ 
+$${\color{#1E90FF}︶︶Welcome \space to \space my \space corner \space of \space the \space Internet!︶︶}$$ 
 
 ⚠️ 
 $${\color{#808080}﹉﹉﹉﹉﹉﹉﹉﹉﹉NO \space Copying \space or \space taking \space Inspo. ﹉﹉﹉﹉﹉﹉﹉﹉﹉ }$$ 
