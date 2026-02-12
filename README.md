@@ -11,11 +11,7 @@ $${\color{#808080}﹉﹉﹉﹉﹉﹉﹉﹉﹉NO \space Copying \space or \space 
 ▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃
 
 $${\color{#00d4ff}
-The \space other \space studios \space wanna \space feed \space you \space the \space same \space old \space crap \space everyone's \space seen \space before. \space
-You \space want \space newer, \space you \space want \space bigger, \space you \space want \space brighter! \space
-I \space will \space be \space your \space voice, \space and \space we \space will \space redefine \space what \space it \space means \space to \space rule \space the \space airwaves. \space
-Trust \space me, \space and \space your \space future \space will \space be \space brighter! \space
-Now \space who's \space ready \space to \space be \space baptized \space into \space a \space new \space era \space of \space entertainment?!}$$
+Leave \space me. \space Love \space me. \space Don't \space be \space a \space fool. \space Want \space me. \space Feed \space me. \space No \space one \space so \space cruel \space and.. \space cheap. \space What \space I \space love \space I \space devour. \space What \space you \space love \space you \space devour, \space what \space I \space covet, \space I \space keep.}$$
 
 ┏━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━┓ 
 
