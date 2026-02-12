@@ -1,7 +1,7 @@
 <div align="center"> 
   
-![](https://komarev.com/ghpvc/?username=theaterofstatic&color=ff69b4&label=LURKERS&base=3893)
-
+  ![Profile views](https://komarev.com/ghpvc/?username=theaterofstatic) 
+  
 $${\color{#FF2400}ㅤㅤㅤㅤㅤㅤ��ㅤ ╰─╮ Vin / Flo ╭─╯ }$$ 
 $${\color{#1E90FF}︶︶Welcome \space to \space my \space corner \space of \space the \space Internet!︶︶}$$ 
 
