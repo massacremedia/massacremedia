@@ -2,11 +2,11 @@
   
   ![Profile views](https://komarev.com/ghpvc/?username=theaterofstatic) 
   
-$${\color{#FF2400}ㅤㅤㅤㅤㅤㅤ��ㅤ ╰─╮ Vin / Flo ╭─╯ }$$ 
-$${\color{#1E90FF}︶︶Welcome \space to \space my \space corner \space of \space the \space Internet!︶︶}$$ 
+$${\color{#FF2400}ㅤㅤㅤㅤㅤㅤ��ㅤ ╰─╮ call \space me \space whatever \space you'd \space like. ╭─╯ }$$ 
+$${\color{#1E90FF}︶︶welcome \space to \space my \space corner \space of \space the \space internet!︶︶}$$ 
 
 ⚠️ 
-$${\color{#808080}﹉﹉﹉﹉﹉﹉﹉﹉﹉NO \space Copying \space or \space taking \space Inspo. ﹉﹉﹉﹉﹉﹉﹉﹉﹉ }$$ 
+$${\color{#808080}﹉﹉﹉﹉﹉﹉﹉﹉﹉NO \space copying \space or \space taking \space inspo. ﹉﹉﹉﹉﹉﹉﹉﹉﹉ }$$ 
 
 ▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃
 
