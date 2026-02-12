@@ -23,7 +23,7 @@ Now \space who's \space ready \space to \space be \space baptized \space into \s
   <img
     src="https://media1.tenor.com/m/KLhv-D6nH7YAAAAC/vox-eye.gif"
     alt="Vincent Banner"
-    width="800"
+    width="450"
   >
 </p>
 
